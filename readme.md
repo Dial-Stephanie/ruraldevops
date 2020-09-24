@@ -89,7 +89,9 @@ Sincerely,
 [Nestigator](https://www.nestigator.com/profile/l-47106419) | [Calendar.x.ai](https://calendar.x.ai/undercontract)    
 [Product Hunt](https://www.producthunt.com/@reallistagent) | [Scope-of-Work App Rough Mock-Up](https://docs.google.com/spreadsheets/d/1E_RI52FqRS2iDa3biqCINliBtF1-rs4rIVJcw2ge1Vg/preview "YC said it could potentially be a platform")    
 [Presentation to SUS](https://bit.ly/DialEdIn-YC-Sprint) | [Zillow](https://www.zillow.com/profile/stephl7335/)    
-[Google SERP](https://www.google.com/search?q=dial+stephanie+rural+georgia+realty)  | TK
+[Google SERP](https://www.google.com/search?q=dial+stephanie+rural+georgia+realty)  | [Calendar.x.ai/UnderContract](https://calendar.x.ai/undercontract)    
+[Zoom](https://zoom.us/j/8412912625?pwd=WkQxWnFibHY0ekZiUjJ4RGhXR05GZz09 "Personal Meeting") | Personal Meeting ID 841 295262 
+
 
 ---
 
